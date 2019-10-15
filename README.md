@@ -1,0 +1,1 @@
+# scrap-new-camera
